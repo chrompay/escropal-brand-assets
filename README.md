@@ -1,0 +1,1 @@
+# escropal-brand-assets
